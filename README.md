@@ -1,1 +1,0 @@
-# tecnosk.github.com
